@@ -1,0 +1,7 @@
+- 👋 Hola, soy @lumenbyte
+- 👀 Estamos interesados en crear soluciones de software innovadoras que transformen los negocios.
+- 🌱 Actualmente estamos iniciendo nuestro proceso de incersion en el mercado.
+- 💞️ Buscamos tambien colaborar en proyectos interesantes que aprovechen la tecnología para resolver problemas del mundo real.
+- 📫 Cómo comunicarse con nosotros: [lumenbyte.1407@gmail.com] o buscanos en LinkedIn: [LinkedIn](https://www.linkedin.com/company/104292223/admin/feed/posts/)
+- 😄 Pronombres: Nosotros/Ellos
+- ⚡ Dato curioso: pronto estaremos buscando developers, siguenos en LinkedIn y estate atento a las publicaciones.
